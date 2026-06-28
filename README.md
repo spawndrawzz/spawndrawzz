@@ -3,8 +3,8 @@
 
 
 <p align="left">${\textsf{\color{#f2f6ff}  
-   Two Time(4S) / Broken Spawn(LHG) / Booker(DO) irl. }}$
-<p align="center">${\textsf{\color{#dfe6f5}  Spawn / Time / Elle }}$
+   Two Time(4S) / Broken Spawn(LHG) / Booker(DO) / Jim(JC) irl. }}$
+<p align="center">${\textsf{\color{#dfe6f5}  Spawn / Time }}$
    
 ***
    
