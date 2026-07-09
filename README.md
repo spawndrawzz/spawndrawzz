@@ -1,25 +1,24 @@
-<img width="1024" height="768" alt="image" src="https://i.pinimg.com/736x/24/f5/8c/24f58c75f87c4942c3bb74f98c80a7c6.jpg" />
+<img width="1024" height="768" alt="image" src="https://media.discordapp.net/attachments/1506128027195674678/1524691679981076480/1000018559.jpg?ex=6a50ab47&is=6a4f59c7&hm=15ea86498c9fecc63ff7064531a8f3c3ee2239dad8fe2b4b6367aee37941f0" />
 
 
 
 <p align="left">${\textsf{\color{#f2f6ff}  
-   Two Time(4S) / Broken Spawn(LHG) / Booker(DO) / Jim(JC) irl. }}$
-<p align="center">${\textsf{\color{#dfe6f5}  Spawn / Time }}$
+   1 k1n B0TH f0rs4k3n c00lk1dd & the h4ck3r, but the h4ck3r m0r3. }}$
+<p align="center">${\textsf{\color{#dfe6f5}  C00l / Sp4wn }}$
    
 ***
    
 <p align="center">${\textsf{\color{#c8d1e6}  DNI DOUBLES + DO NOT SEXUALIZE US PLEASE.  }}$
 <p align="center">${\textsf{\color{#b8bdde}  "[when your bf sacrifices you] whispers: listen to ur alpha" }}$
   <p align="center">${\textsf{\color{#a9afd1}  “you’re the Juliet to my romeo kitten whiskers…. Grrrr… growls to assert my alpha dominance" from my bf, @edmunson }}$
+<p align="center">${\textsf{\color{#b8bdde}  1m S3V3RL3Y 0verpr0t3ct1v3 wh3n 1t c0m3s t0 my fr13nds. }}$
 
-<p align="center">${\textsf{\color{#9ba1c9}  DSMP/QSMP + 4SAKEN; IWEC ,, DW; IWC . }}$
-<p align="center">${\textsf{\color{#8c92bf}  007N7/C00LK1D + HH/HB DNI . }}$
 <p align="center">${\textsf{\color{#8088bd}  If we distrust you, please recognize we have a lot of PTSD we're still recovering from. }}$
 
 <p align="center">${\textsf{\color{#727bb5} Bluudud yume :'))) }}$
    </a>
 </p>
-<img width="1024" height="768" alt="image" src="https://i.pinimg.com/736x/f2/c8/5c/f2c85c4607bd136c1bbfd7330f43d4ea.jpg" />
+<img width="1024" height="768" alt="image" src="https://media.discordapp.net/attachments/1506128027195674678/1524691679691673690/1000018561.jpg?ex=6a50ab47&is=6a4f59c7&hm=aea034c8cdee7e6a3f37fa4b38f42" />
 <img width="1196" height="246" alt="image" src="https://i.pinimg.com/1200x/0d/7f/b1/0d7fb119b7f822dee813d1438ccb53cd.jpg" />
 <img width="1080" height="228" alt="image" src="https://i.pinimg.com/1200x/97/fc/e4/97fce4916fcb0adae7e064b16082fd97.jpg" />
 <img width="1170" height="231" alt="image" src="https://i.pinimg.com/1200x/e0/a3/eb/e0a3eb04eb0a828c2ad70a82a271323d.jpg" />
