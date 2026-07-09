@@ -1,24 +1,23 @@
-<img width="1024" height="768" alt="image" src="https://media.discordapp.net/attachments/1506128027195674678/1524691679981076480/1000018559.jpg?ex=6a50ab47&is=6a4f59c7&hm=15ea86498c9fecc63ff7064531a8f3c3ee2239dad8fe2b4b6367aee37941f0" />
+<img width="1024" height="768" alt="image" src="https://i.pinimg.com/736x/d7/b5/9a/d7b59a53188aea69ea246b3f2646f319.jpg" />
 
 
 
-<p align="left">${\textsf{\color{#f2f6ff}  
-   1 k1n B0TH f0rs4k3n c00lk1dd & the h4ck3r, but the h4ck3r m0r3. }}$
-<p align="center">${\textsf{\color{#dfe6f5}  C00l / Sp4wn }}$
+<p align="left">${\textsf{\color{#852020} 1 k1n B0TH f0rs4k3n c00lk1dd & the h4ck3r, but the h4ck3r m0r3. }}$
+<p align="center">${\textsf{\color{#912424}  C00l / Sp4wn }}$
    
 ***
    
-<p align="center">${\textsf{\color{#c8d1e6}  DNI DOUBLES + DO NOT SEXUALIZE US PLEASE.  }}$
-<p align="center">${\textsf{\color{#b8bdde}  "[when your bf sacrifices you] whispers: listen to ur alpha" }}$
-  <p align="center">${\textsf{\color{#a9afd1}  “you’re the Juliet to my romeo kitten whiskers…. Grrrr… growls to assert my alpha dominance" from my bf, @edmunson }}$
-<p align="center">${\textsf{\color{#b8bdde}  1m S3V3RL3Y 0verpr0t3ct1v3 wh3n 1t c0m3s t0 my fr13nds. }}$
+<p align="center">${\textsf{\color{#a12a2a}  DNI DOUBLES + DO NOT SEXUALIZE US PLEASE.  }}$
+<p align="center">${\textsf{\color{#ba3636}  "[when your bf sacrifices you] whispers: listen to ur alpha" }}$
+  <p align="center">${\textsf{\color{#c93c3c}  “you’re the Juliet to my romeo kitten whiskers…. Grrrr… growls to assert my alpha dominance" from my bf, @edmunson }}$
+<p align="center">${\textsf{\color{#d14343}  1m S3V3RL3Y 0verpr0t3ct1v3 wh3n 1t c0m3s t0 my fr13nds. }}$
 
-<p align="center">${\textsf{\color{#8088bd}  If we distrust you, please recognize we have a lot of PTSD we're still recovering from. }}$
+<p align="center">${\textsf{\color{#de4b4b}  If we distrust you, please recognize we have a lot of PTSD we're still recovering from. }}$
 
-<p align="center">${\textsf{\color{#727bb5} Bluudud yume :'))) }}$
+<p align="center">${\textsf{\color{#e65555} Bluudud yume :'))) }}$
    </a>
 </p>
-<img width="1024" height="768" alt="image" src="https://media.discordapp.net/attachments/1506128027195674678/1524691679691673690/1000018561.jpg?ex=6a50ab47&is=6a4f59c7&hm=aea034c8cdee7e6a3f37fa4b38f42" />
+<img width="1024" height="768" alt="image" src="https://i.pinimg.com/736x/8b/2d/31/8b2d31b1528e06cdf8c1b6c4abaae450.jpg" />
 <img width="1196" height="246" alt="image" src="https://i.pinimg.com/1200x/0d/7f/b1/0d7fb119b7f822dee813d1438ccb53cd.jpg" />
 <img width="1080" height="228" alt="image" src="https://i.pinimg.com/1200x/97/fc/e4/97fce4916fcb0adae7e064b16082fd97.jpg" />
 <img width="1170" height="231" alt="image" src="https://i.pinimg.com/1200x/e0/a3/eb/e0a3eb04eb0a828c2ad70a82a271323d.jpg" />
