@@ -2,7 +2,7 @@
 
 
 
-<p align="left">${\textsf{\color{#852020} 1 k1n B0TH f0rs4k3n c00lk1dd & the h4ck3r, but the h4ck3r m0r3. }}$
+<p align="left">${\textsf{\color{#852020} 1 k1n B0TH f0rs4k3n c00lk1dd 4nd the h4ck3r, but the h4ck3r m0r3. }}$
 <p align="center">${\textsf{\color{#912424}  C00l / Sp4wn }}$
    
 ***
