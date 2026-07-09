@@ -10,7 +10,7 @@
 <p align="center">${\textsf{\color{#a12a2a}  DNI DOUBLES + DO NOT SEXUALIZE US PLEASE.  }}$
 <p align="center">${\textsf{\color{#ba3636}  "[when your bf sacrifices you] whispers: listen to ur alpha" }}$
   <p align="center">${\textsf{\color{#c93c3c}  “you’re the Juliet to my romeo kitten whiskers…. Grrrr… growls to assert my alpha dominance" from my bf, @edmunson }}$
-<p align="center">${\textsf{\color{#d14343}  1m S3V3RL3Y 0verpr0t3ct1v3 wh3n 1t c0m3s t0 my fr13nds. }}$
+<p align="center">${\textsf{\color{#d14343}  1m S3V3R3LY 0verpr0t3ct1v3 wh3n 1t c0m3s t0 my fr13nds. }}$
 
 <p align="center">${\textsf{\color{#de4b4b}  If we distrust you, please recognize we have a lot of PTSD we're still recovering from. }}$
 
