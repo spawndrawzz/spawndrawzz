@@ -1,13 +1,13 @@
-<img width="1024" height="768" alt="image" src="https://i.pinimg.com/736x/d7/b5/9a/d7b59a53188aea69ea246b3f2646f319.jpg" />
+<img width="1024" height="768" alt="image" src="https://i.pinimg.com/736x/a9/fb/53/a9fb53b910d5507beba9c496fed6a075.jpg" />
 
 
 
-<p align="left">${\textsf{\color{#852020} 1 k1n B0TH f0rs4k3n c00lk1dd 4nd the h4ck3r, but the h4ck3r m0r3. }}$
-<p align="center">${\textsf{\color{#912424}  C00l / Sp4wn }}$
+<p align="left">${\textsf{\color{#852020} im sorry if im rude or dry. i feel so lonely and drained l8ly }}$
+<p align="center">${\textsf{\color{#912424}  s3v3n / c00l / sp4wn }}$
    
 ***
    
-<p align="center">${\textsf{\color{#a12a2a}  D0 N0T C0PY 0R ST34L 0UR 4RT. DN1 D0UBl3S.  }}$
+<p align="center">${\textsf{\color{#a12a2a}  When is "too much" finally become too much? }}$
 <p align="center">${\textsf{\color{#ba3636}  "[when your bf sacrifices you] whispers: listen to ur alpha" }}$
   <p align="center">${\textsf{\color{#c93c3c}  “you’re the Juliet to my romeo kitten whiskers…. Grrrr… growls to assert my alpha dominance" from my bf, @edmunson }}$
 <p align="center">${\textsf{\color{#d14343}  1m S3V3R3LY 0verpr0t3ct1v3 wh3n 1t c0m3s t0 my fr13nds. }}$
@@ -17,7 +17,7 @@
 <p align="center">${\textsf{\color{#e65555} Bluudud yume :'))) }}$
    </a>
 </p>
-<img width="1024" height="768" alt="image" src="https://i.pinimg.com/736x/8b/2d/31/8b2d31b1528e06cdf8c1b6c4abaae450.jpg" />
+<img width="1024" height="768" alt="image" src="https://i.pinimg.com/736x/bb/ac/77/bbac770e3917313e4c1feba1c6d084df.jpg" />
 <img width="1196" height="246" alt="image" src="https://i.pinimg.com/1200x/0d/7f/b1/0d7fb119b7f822dee813d1438ccb53cd.jpg" />
 <img width="1080" height="228" alt="image" src="https://i.pinimg.com/1200x/97/fc/e4/97fce4916fcb0adae7e064b16082fd97.jpg" />
 <img width="1170" height="231" alt="image" src="https://i.pinimg.com/1200x/e0/a3/eb/e0a3eb04eb0a828c2ad70a82a271323d.jpg" />
